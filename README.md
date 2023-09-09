@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ShantKun
-- 👀 I’m interested in programming,watching anime,studying
+- 👀 I’m interested in programming,watching anime,studying,masturbating
 - 🌱 I’m currently learning how to NOT procrastinate
 - 📫 How to reach me on my email deadlockbtc@gmail.com
 <!---
